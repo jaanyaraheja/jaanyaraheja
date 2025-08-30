@@ -21,10 +21,12 @@ Graduate in AI and Data | 💻 Data Analytics Intern @ Bobble AI
 
 ---
 
+⭐️ *Data is money & I believe in creating insights that don’t just explain, but drive decisions.*  
+
+
 ## 📫 Let’s Connect
 - 💼 [LinkedIn](https://www.linkedin.com/in/jaanya-raheja/)  
 - 📧 janyaraheja@gmail.com  
 ---
 
-⭐️ *“Data is money — I believe in creating insights that don’t just explain, but drive decisions.”*  
 
